@@ -1,1 +1,0 @@
-# Pracical-2
